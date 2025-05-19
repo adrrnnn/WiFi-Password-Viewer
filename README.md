@@ -51,7 +51,7 @@ Feel free to use, modify, and share — just don’t use it for malicious purpos
 ## 🙋‍♂️ Author
 
 Built by adrrnnn
-📧 Contact: your.email@example.com
+📧 Contact: mma12@outlook.com.ph
 
 ---
 
